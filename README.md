@@ -1,3 +1,0 @@
-# optionstrading101
-
-#testing
